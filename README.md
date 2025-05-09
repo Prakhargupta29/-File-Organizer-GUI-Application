@@ -71,9 +71,10 @@ Project Overview
 
  
  
-![Screenshot 2025-05-10 000447](https://github.com/user-attachments/assets/042889d1-f571-4b0e-8402-a88fd2f47323)
 
 
+
+![Screenshot 2025-05-10 000447](https://github.com/user-attachments/assets/2534afa5-9792-4787-b0b9-ead18ea5ac4f)
 
 
 
